@@ -1,1 +1,0 @@
-# altar-de-muertos
